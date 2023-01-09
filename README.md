@@ -9,3 +9,34 @@ By creating profiles for fictional characters, it formed a new sense of identity
 Bibliography
 Chia-chen Yang, S. M. H. M. D. C. J. J. W., 2018. Social media social comparison and identity distress at the college transition: A dual-path model. Journal of Adolesence , 69(1), pp. 92-102.
 Muñoz, T. L. T. &. C. L., 2022. A Long Story Short: An Analysis of Instagram Stories during the 2020 Campaigns. Journal of Political Marketing , 21(3-4), pp. 221-234.
+
+
+
+
+
+<img width="445" alt="social media pic 1" src="https://user-images.githubusercontent.com/122316171/211412260-db70fe88-abd2-47fb-b1ed-52aee9cdcd54.png">
+
+
+<img width="445" alt="social media pic 2" src="https://user-images.githubusercontent.com/122316171/211410724-132b453a-b79d-4482-8880-e226e453c2e8.png">
+
+
+<img width="459" alt="social media pic 3" src="https://user-images.githubusercontent.com/122316171/211410753-f25d7166-d373-451e-855e-7fb551861634.png">
+
+
+<img width="445" alt="social media pic 4" src="https://user-images.githubusercontent.com/122316171/211410790-b8ed6403-3e35-4d08-9b6c-1c3a86862910.png">
+
+
+<img width="445" alt="social media pic 5" src="https://user-images.githubusercontent.com/122316171/211410820-c9b8a512-0d3f-4a93-8ccb-cbc06eb20c0b.png">
+
+
+<img width="445" alt="social media pic 6" src="https://user-images.githubusercontent.com/122316171/211410865-b2994246-ec01-4b75-926f-b7d063a4e009.png">
+
+
+<img width="445" alt="social media pic 7" src="https://user-images.githubusercontent.com/122316171/211410892-ca185c52-f6f7-4095-a362-bb5fc849a7c2.png">
+
+
+<img width="445" alt="social media pic 8" src="https://user-images.githubusercontent.com/122316171/211410913-b9d0fc7e-319a-4190-b6c3-8a595e875620.png">
+
+
+<img width="445" alt="social media pic 9" src="https://user-images.githubusercontent.com/122316171/211410928-9ad0b012-ee56-4a34-a9b5-e1cb9ac31625.png">
+
